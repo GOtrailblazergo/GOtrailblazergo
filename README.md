@@ -2,6 +2,7 @@
 <p align=“left”> 
 <a href='https://postimages.org/' target='_blank'><img src='https://i.postimg.cc/YhZxYRSb/Bez-nazvania60-20261116023627.png' border='0' alt='Bez-nazvania60-20261116023627'></a>
 
+kinnlist 🌀
 <p align=“center”>
 　 <a href='https://postimages.org/' target='_blank'><img src='https://i.postimg.cc/ZqJNsXGg/Bez-nazvania59-20261116023536.png' border='0' alt='Bez-nazvania59-20261116023536'></a>
                                                                                                         
